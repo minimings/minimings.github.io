@@ -1,0 +1,1 @@
+# minimings.github.io
